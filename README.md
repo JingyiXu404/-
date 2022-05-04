@@ -1,1 +1,1 @@
-# Synthetic large watermelon, a version by dreaming4star #
+# Synthetic large watermelon, a version by JingyiXu404 #
